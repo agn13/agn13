@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me
 - EmailID-agniroopsaha2003@gmail.com
-- InstaID-@mystifying_cipher_365
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
